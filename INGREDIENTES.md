@@ -1,0 +1,1 @@
+Dinhero,Paciencia e ter um carro ou força para andar
